@@ -1,4 +1,4 @@
-👋 ¡Hola! Soy Eeagle, un entusiasta desarrollador con un enfoque creativo en la tecnología. 
+👋 ¡Hola! Soy Jose Almonte, un entusiasta desarrollador con un enfoque creativo en la tecnología. 
 
 Creo firmemente en la innovación personal: 
 si las empresas no buscan desarrolladores, ¡yo desarrollo la empresa!
